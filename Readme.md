@@ -57,18 +57,4 @@ Down the Witches' Road (down the Witches' Road)
 Follow me, my friend
 To glory at the end
 
-
-Adicionar aos favoritos
-
-Adicionar à playlist
-
-Tamanho do texto
-Cifra
-Imprimir
-Corrigir
-
-Rolagem automática
-
-
-Assine o Letras para remover anúncios
 Composição: Andrew Asemokai / Christophe Beck / Kristen Anderson-Lopez / Michael Paraskevas / Robert Lopez. 
